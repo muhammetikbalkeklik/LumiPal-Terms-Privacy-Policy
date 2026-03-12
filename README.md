@@ -1,1 +1,0 @@
-# LumiPal-Terms-Privacy-Policy
